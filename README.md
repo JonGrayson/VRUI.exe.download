@@ -1,0 +1,1 @@
+Alright boys, we're doing a standard training routine today. Keep an eye on your Visor Display and let's not have any more cases of friendly fire. Disable it if you need you to see clearly, let's do this.
